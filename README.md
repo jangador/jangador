@@ -1,0 +1,8 @@
+- 👋 Olá, eu me chamo Saulo sou do colegio Duque de Caxias
+- 👀gosto de não fazer nada e assistir filme
+- tenho 16 anos, vou pra escola além disso não faço mais nada 
+- sou de boa, não não mexo com ninguem    
+- 🌱as vezes faço algumas brincadeiras 
+- 💞️faço alguns exercicios 
+- tenho um pouco de conhecimentoo em scratch e html e css
+- 📫 
